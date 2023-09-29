@@ -1,2 +1,2 @@
 Гудов Роман 1995 года рождения.
-![image](https://imgur.com/g2fc9Qu)
+![image](https://i.imgur.com/g2fc9Qu.png)
